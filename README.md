@@ -6,8 +6,6 @@
 
 Computer Engineering Student — Mansoura University
 
----
-
-📧 **Contact:** rahmaayman2268@gmail.com
+📧 rahmaayman2268@gmail.com
 
 </div>
